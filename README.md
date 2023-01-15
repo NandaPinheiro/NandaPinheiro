@@ -1,4 +1,6 @@
-Oii! Eu sou a Fernanda
+##Oii! Eu sou a Fernanda
+
+##
 
 - 🌱 Estudando Logica da Programção e Python.
 - 🙋‍♀️ Me encontre no Email: Fernandabp2414@gmail.com
