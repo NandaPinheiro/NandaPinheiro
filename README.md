@@ -1,6 +1,6 @@
 ## Oii! Eu sou a Fernanda
 
-- 🌱 Estudando Logica da Programção e Python.
+- 🌱 Estudando Analise e desenvolvimento de sistemas.
 - 🙋‍♀️ Me encontre no Email: Fernandabp2414@gmail.com
 - 😄 Pronouns: Ela/Dela 
 
