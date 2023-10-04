@@ -4,7 +4,7 @@
     
 - 🌱 Estudando: Analise e desenvolvimento de sistemas pela PUC MINAS.
 - 💭 Atualmente estudando as Linguagens HTML, CSS e JS pela Alura.
-- ✨ Fatos sobre mim: trabalhei como assistente financeira anteriormente, e atualmente estou a procura de um estágio em TI para complementar meus conhecimentos. 
+- ✨ Fatos sobre mim: Atualmente atuo como Technical Support na empresa SONDA. 
 - 🙋‍♀️ Me encontre no Email: Fernandabp2414@gmail.com
 - 😄 Pronouns: Ela/Dela 
 
