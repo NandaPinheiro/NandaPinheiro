@@ -1,4 +1,4 @@
-## Oii! Eu sou a Fernanda, Tenho 19 anos. 
+## Oii! Eu sou a Fernanda, Tenho 20 anos. 
 
     ➵ Venha conhecer um pouco mais sobre mim🙇🏻‍♀️
     
